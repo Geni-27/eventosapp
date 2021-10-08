@@ -1,3 +1,0 @@
-# eventosapp
-# eventosapp
-# eventosapp
